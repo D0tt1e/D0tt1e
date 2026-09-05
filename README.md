@@ -2,17 +2,15 @@
 Wip
 -----------------------
 
-<p align="center">$${\color{#6E260A}Cocoa\ or\ sugar}$$</p>
+<p align="center"> <a href="https://visitorbadge.io/status?path=D0tt1e"><img src="https://api.visitorbadge.io/api/visitors?path=D0tt1e&label=Chocolate%20bunnies%20%2C%2C&labelColor=%23b04e26&countColor=%23fbc186" /></a></p>
+
+<img width="96" height="56" alt="646685919-70c4e336-db99-45b3-a578-6346a05605d7" src="https://github.com/user-attachments/assets/11637a0d-27a0-4299-b198-93cb548adabf" />
+ 
+ <img width="99" height="56" alt="646686315-6b94bc8f-ade3-4a6b-a9c1-30877a434792" src="https://github.com/user-attachments/assets/e7566cff-6e94-4619-bacd-1f158b1dca15" />
 
 
-<img width="96" height="56" alt="tumblr_ff63e7950794507a3aa301c36e7cb6a7_e56c1124_100" src="https://github.com/user-attachments/assets/70c4e336-db99-45b3-a578-6346a05605d7" />
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2967&pause=797&color=802F18&width=444&lines=Oh+Mr+Wolf+you+want+me+to+stay%3F;But+I+fear+we'll+regret+it+one+day.;I+have+the+thing%2C+you+love.;But+the+need+in+you+is+way+too+much.;If+I%2C+open+wide.;One+of+us+may+get+lost+inside.;Me%2C+or+you.;One+of+us+is+going+to;Need+to;Die." alt="Typing SVG" /></a>
 
-<img width="96" height="56" alt="tumblr_a3d70622b7418749fd405313c17052f5_7b6a2e13_100" src="https://github.com/user-attachments/assets/c215845d-5c8d-4bc5-8faf-462559ebbfae" />
 
-<img width="96" height="56" alt="tumblr_ae22034dc9a695e567ff7c7f7ef2e29a_b1e02857_100" src="https://github.com/user-attachments/assets/2e2f6e62-de07-463f-98ac-dc77c763f01f" />
-
-<img width="96" height="56" alt="tumblr_737dac775ded638271866e7e45c298dc_a42a5bc6_100" src="https://github.com/user-attachments/assets/5a82665d-1381-4954-b9a2-967d813089a1" />
-
-<img width="99" height="56" alt="tumblr_003ac64842e778599e8a6d2b4e908cb4_3752ca3d_100" src="https://github.com/user-attachments/assets/6b94bc8f-ade3-4a6b-a9c1-30877a434792" />
 
 
