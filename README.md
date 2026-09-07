@@ -10,7 +10,7 @@ Wip
 
 <p align="Center">$${\color{#4188d2}KEI\ / POPPY}$$</p>
 
-<p align="Left">$${\color{#4188d2}\}Poppy\kin. }$$</p>
+<p align="Left">$${\color{#4188d2}Poppy\ kin.}$$</p>
 
 <p align="Right"><img width="512" height="92" alt="tumblr_5df4d6f2a91eca556def8d17d4d30def_dd4a6446_2048" src="https://github.com/user-attachments/assets/86782e40-cff7-4853-9922-930e4ce35284" /></p>
 
