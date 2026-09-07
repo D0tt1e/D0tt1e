@@ -2,7 +2,11 @@
 Wip
 -----------------------
 
-<p align="center"> <a href="https://visitorbadge.io/status?path=D0tt1e"><img src="https://api.visitorbadge.io/api/visitors?path=D0tt1e&label=Pink%20Ribbons%20%2C%2C&labelColor=%2333a6d7&countColor=%23ff3874" /></a></p>
+
+
+
+<div align="Right"><img width="317" height="500" alt="tumblr_f76df1a3a14d75f6c4a55b7183ed6abf_598510f3_250" src="https://github.com/user-attachments/assets/3c54c825-916d-44d9-8a36-801aaf4d24f7" /></p>
+
 
 
 
