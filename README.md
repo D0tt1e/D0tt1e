@@ -10,7 +10,7 @@ Wip
 <img width="99" height="57" alt="tumblr_2a43a11570c951d73b3c4359981b0112_fec3ecf6_100" src="https://github.com/user-attachments/assets/42affc71-3149-405d-8774-69277b96a5ee" />
 
 
-<p align="Center">$${\color{#4188d2}KEI\ / POPPY}$$</p>
+<p align="Center">$${\color{#4188d2}KEI\ / Lani}$$</p>
 
 <p align="Center">$${\color{#4188d2}IWEC\ Anyone\ under\ 14}$$</p>
 
