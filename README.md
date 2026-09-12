@@ -6,7 +6,8 @@ Wip
 
 <p align="Center">$${\color{#4188d2}KEI\ / Lani}$$</p>
 
-<p align="Center">$${\color{#4188d2}IWEC\ Anyone\ under\ 14}$$</p>
-
+<p align="Center">$${\color{#4188d2}nonsharing\ Looey\ yume}$$.</p>
+  
+  <p align="Center">$${\color{#4188d2}︶C+H\ freely\ unless\ name\ states\ otherwise♡(?)}$$.</p>
  
 
