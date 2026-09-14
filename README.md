@@ -16,4 +16,7 @@ okay wait , aviods doing github😳✌🏽
 
 Awards (?)
   <p align="Left"><img width="209" height="42" alt="image" src="https://github.com/user-attachments/assets/27890385-c610-43b9-a571-a691d038079f" /></p>
+<img width="254" height="32" alt="image" src="https://github.com/user-attachments/assets/09bb3b95-3b55-4df3-8ec6-8ee9f97f1512" />
+
+  
 
