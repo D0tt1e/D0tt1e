@@ -33,3 +33,5 @@ under construction
  <img width="99" height="56" alt="tumblr_2dafe6fd44517f1e9577214406cd308e_5cc5bd9b_100" src="https://github.com/user-attachments/assets/7ade3f44-0308-4562-8c99-c187cbef0766" />
 
  <img width="99" height="56" alt="tumblr_c15f9bbe5ef2e5aed5ef5492e13f86b8_f72fa1d4_100" src="https://github.com/user-attachments/assets/ca51b9e2-ac9b-4101-a940-e64bca9a5051" />
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=500&color=13A1C3&width=435&lines=You+give+me+diamonds.;I+give+you+nothing!+;You+cant+fool+me%2C;I'm+like+a+dolphin+!+;You+give+me+dimonds;I+give+you+nothing.;You+can't+own+me!;I'm+like+a+dolphin+%5E3%5E" alt="Typing SVG" /></a>
+ 
