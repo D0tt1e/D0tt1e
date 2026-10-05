@@ -12,9 +12,6 @@ under construction
 
 <div align="Center"><img width="100" height="70" alt="tumblr_4fcec7c4a7e00be6c34a7a3f4bb254e8_acc140b3_100" src="https://github.com/user-attachments/assets/10a3ecad-834c-43ad-aa72-3636c46b19ec" /></div>
 
-
-<img width="150" height="20" alt="tumblr_c6100278a0c4b25ab04bf2dc50e29cbc_5fb61129_250" src="https://github.com/user-attachments/assets/744fcd07-3237-4b71-8696-37a26e580e34" />
-
  $$\color{#ca2626}{\mathbf{-\ GIGI\ OR\ KEI}}$$
 
   $$\color{#f1ba3a}{\mathbf{-\ BASIC\ DNI.\ I\ BLOCK\ FREELY.}}$$
@@ -29,9 +26,6 @@ under construction
 
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=500&color=13A1C3&width=435&lines=You+give+me+diamonds.;I+give+you+nothing!+;You+cant+fool+me%2C;I'm+like+a+dolphin+!+;You+give+me+dimonds;I+give+you+nothing.;You+can't+own+me!;I'm+like+a+dolphin+%5E3%5E" alt="Typing SVG" /></a>
  
- <img width="99" height="56" alt="tumblr_2dafe6fd44517f1e9577214406cd308e_5cc5bd9b_100" src="https://github.com/user-attachments/assets/7ade3f44-0308-4562-8c99-c187cbef0766" />
-
-
 <div align="Center"> <img width="259" height="49" alt="image" src="https://github.com/user-attachments/assets/e7c11c0f-688d-4592-bfbf-13949fa6bd29" /></div>
 
 <div align="Center">  <img width="216" height="49" alt="image" src="https://github.com/user-attachments/assets/002576d2-7cbc-4792-ade4-cb3b9ad946fb" /></div>
